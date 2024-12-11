@@ -1,1 +1,0 @@
-# foxbould.github.io
